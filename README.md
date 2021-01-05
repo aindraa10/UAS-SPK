@@ -1,4 +1,6 @@
 # UAS-SPK
 uas-spk
 
-jadi begini bos
+Asep Indrawan
+171011401498
+07TPLM006
